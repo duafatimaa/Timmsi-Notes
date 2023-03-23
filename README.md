@@ -1,1 +1,0 @@
-# Timmsi-Notes
